@@ -7,7 +7,7 @@
 - SQL
   
 
-📧 E-Mail : yoojeongkwon31@gmail.com 
+E-Mail : yoojeongkwon31@gmail.com 
 
 
 
